@@ -1,6 +1,6 @@
-did sys introject
+did sys + sprout irl
 
-sign straw : https://sprooout.straw.page
+sign straw and read boundaries : https://sprooout.straw.page
 
 whisps r usually off bc pings freak me out. i dont bite tho.
 
